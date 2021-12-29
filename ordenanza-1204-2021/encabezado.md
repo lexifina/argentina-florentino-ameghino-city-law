@@ -1,0 +1,20 @@
+Ordenanza Nº1204
+Ordenanza Nº 1204
+Florentino Ameghino, 30/11/2021
+VISTO:
+La necesidad de contar con una legislación que aborde la Gestión Integral de los Residuos Sólidos Urbanos bajo el concepto de economía circular, abarcando todas las etapas desde la generación hasta la recuperación o disposición final, y
+CONSIDERANDO:
+Que el Artículo 28 de la Constitución de la Provincia de Buenos Aires dispone que la Provincia deberá preservar, recuperar y conservar los recursos naturales, renovables y no renovables del territorio provincial, así como promover acciones que eviten la contaminación del aire, agua y suelo; y establece que sus habitantes tienen el derecho a gozar de un ambiente sano y el deber de conservarlo y protegerlo en su provecho y en el de las generaciones futuras;
+Que la Ley Nacional N°25.916 de Presupuestos Mínimos para la Gestión Integral de Residuos Domiciliarios, establece entre sus principios y conceptos básicos la consideración de los residuos como un recurso, la minimización de la generación, la reducción del volumen y la cantidad total y por habitante de los residuos que se producen o disponen, estableciendo metas progresivas, a las que deberán ajustarse los sujetos obligados;
+Que conforme lo establecido en la Ley Provincial N°13.592 de Gestión Integral de Residuos Sólidos Urbanos, constituyen objetivos en materia ambiental la incorporación en la disposición inicial de la separación en origen, la valorización, la reutilización, el reciclaje y la minimización de la generación de residuos de acuerdo con las metas establecidas por la misma;
+Que en el artículo 3° de la citada ley se contemplan los principios y conceptos básicos sobre los cuales se funda la GIRSU donde se establecen los principios de precaución, prevención, monitoreo y control ambiental, los principios de responsabilidad compartida, la consideración de los residuos como recursos, la minimización en la generación y la valorización de los residuos;
+Que dicha Ley Provincial determina que los municipios deben presentar un Programa de GIRSU, conforme a lo establecido por la Ley Nacional N°25.916;
+Que, en otro orden de ideas, establece como principio básico el aprovechamiento económico de los residuos, tendiendo a la generación de empleo en condiciones óptimas de salubridad como objetivo relevante,
+Que se requiere de un abordaje completo, planificado e inclusivo de la GIRSU para lo cual se necesita una norma amplia que considere a todos los actores y establezca reglas claras;
+Que la Municipalidad de Florentino Ameghino ha invertido recursos económicos para poner en funcionamiento una Planta de Clasificación y Recuperación de residuos dotada de equipamiento e infraestructura para mejorar el sistema de gestión de residuos sólidos domiciliarios tendiente a maximizar la recuperación y minimizar la disposición final;
+Que se hace necesario reglamentar la venta de los RSU reciclables recuperados y la distribución de los ingresos obtenidos de la misma en el marco del Programa Eco Ameghino, Eco Blaquier y Eco Porvenir.
+Que la venta y reinserción de dichos RSU reciclables representan, no solo un impacto significativamente positivo en términos ambientales, también generan ingresos económicos para el Municipio de Florentino Ameghino que permitirán aumentar la capacidad operativa instalada en la Planta de Clasificación de RSU, adaptar equipos de recolección en la vía pública y profundizar la sensibilidad de la población acerca de la temática ambiental, para lograr que nuestra ciudadanía tome una actitud proactiva con miras al consumo responsable y la correcta gestión de los residuos que genera;
+Que se torna necesario alcanzar una gestión sostenible de los residuos sólidos urbanos en donde se priorice la minimización en la generación, la separación en origen, la maximización en la recuperación, la participación ciudadana, la inclusión social, la mejora en la calidad de vida de la población y un ambiente sano;
+Por ello, el Honorable Concejo Deliberante, en uso de sus atribuciones sanciona la siguiente:
+ORDENANZA
+Título I - Objetivo y Ámbito de Aplicación
