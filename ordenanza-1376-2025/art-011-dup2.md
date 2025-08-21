@@ -1,0 +1,2 @@
+ARTÍCULO 11º: Aquellos preadjudicatarios que no den cumplimiento a uno o más de los requerimientos establecidos en la presente Ordenanza y este Anexo I, serán pasibles de la revocatoria de la preadjudicación. En dicho caso, pueden hacer uso de la opción de compra los postulantes que hayan ingresado al listado de suplentes, y en el orden que se les hubiera asignado.-
+CAPITULO NOVENO: ESCRITURA TRASLATIVA DE DOMINIO. GASTOS DE ESCRITURACIÓN.

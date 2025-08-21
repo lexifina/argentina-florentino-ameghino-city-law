@@ -1,0 +1,4 @@
+ARTÍCULO 12°: La escritura traslativa de dominio de los lotes adjudicados se otorgará una vez cancelado el precio total del inmueble, conforme a los plazos y condiciones que establezca la reglamentación. La escrituración se realizará ante la Escribanía General de Gobierno o por intermedio del escribano designado por el Departamento Ejecutivo Municipal, según corresponda.
+No obstante lo dispuesto precedentemente, en caso de que el adjudicatario opte por realizar la escrituración a través de un escribano de su elección, los gastos que dicha gestión demande, serán a su exclusivo cargo.
+Excepcionalmente, y a solicitud del interesado, podrá instrumentarse la escritura traslativa de dominio aun cuando subsista un saldo de precio impago, siempre que el adjudicatario acepte constituir hipoteca en primer grado sobre el bien en favor de la Municipalidad de Florentino Ameghino, en garantía del cumplimiento de la obligación pendiente.-
+CAPITULO DECIMO: FALTA DE PAGO.

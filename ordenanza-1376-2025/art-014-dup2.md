@@ -1,0 +1,1 @@
+ARTÍCULO 14°: Facultades de la Autoridad Municipal de Aplicación. Sin perjuicio de lo dispuesto en la presente Ordenanza y el presente Anexo I, queda facultada la Autoridad Municipal de Aplicación para resolver cuestiones no especificadas y/o contempladas.-

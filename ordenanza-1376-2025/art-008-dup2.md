@@ -1,0 +1,2 @@
+ARTÍCULO 8º: En caso de que los lotes disponibles fueren de cantidad inferior a la cantidad de postulantes, debe realizarse un sorteo para definir los preadjudicatarios. Para el sorteo debe contarse con el padrón total de postulantes que hayan cumplido con la totalidad de los requisitos. A estos efectos, se asigna a cada postulante un número de orden. Quienes no resulten beneficiarios quedan excluidos de la presente venta. Asimismo, se debe designar mediante sorteo la cantidad postulantes suplentes que corresponda. –
+CAPITULO SEXTO: PREADJUDICACION

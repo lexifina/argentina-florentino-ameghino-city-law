@@ -1,0 +1,1 @@
+ARTÍCULO 13°: La falta de pago de tres (3) cuotas, alternadas o consecutivas, de las obligaciones asumidas en el marco del presente programa habitacional, dará lugar, sin necesidad de interpelación previa, a la ejecución judicial del acuerdo de pago suscripto por el beneficiario, el que tendrá carácter de título ejecutivo.-
