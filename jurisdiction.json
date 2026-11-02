@@ -1,0 +1,11 @@
+{
+  "path": "ar-b-florentino-ameghino",
+  "code": "AR-B-FLORENTINO-AMEGHINO",
+  "name": "Florentino Ameghino",
+  "level": "municipality",
+  "parent": "ar-b",
+  "repo": "https://github.com/lexifina/argentina-florentino-ameghino-city-law",
+  "build": "built: municipal ordinances (204 ordinances, 204 versions) from https://sibom.slyt.gba.gob.ar/cities/43",
+  "language": "es",
+  "sources": 1
+}
